@@ -1,7 +1,9 @@
 - Hiya! Im Sl33p-d3prived-r3n. I'm not actually sleep deprived, I'm just very tired lol.
-- My interests: Keeper of the lost cities, genshin impact, minecraft, and much more!
+- My interests: Keeper of the lost cities, genshin impact, and Ace Attorney!
 - What I'm planning on learning: How to code and make animations!
-- I’m looking to collaborate on; nothing yet. But, if you want a small chibi artpiece done, feel free to ask!
-- How to reach me: Unless your a relative, of which I will reach out to you via my personal email, please reach out to me on scratch! Username: @sleepy_vibes
-- My favorite music artists: MARINA, Crystal Castles, Dresden dolls, maize, and more!
-- My art style: It's a mix of alternative art, chibi, and weirdcore.
+- I’m looking to collaborate on; Nothing yet. I'm a bit busy this year in general, but I might try collaberating on something next year!
+- How to reach me: I don't really have any ways to reach me... :C
+- My favorite music artists: Marina, Mitski, Melanie Martinez, Mommy Long Legs, and Crystal Castles!
+- My art style: It's a mix. Partially weirdcore, Partially alternative, Partially hyperpop.
+- Welp, you've reached the end of my little introduction! Have a nice day!
+                                                                            -Ren
